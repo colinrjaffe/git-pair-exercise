@@ -1,7 +1,6 @@
-# Interview with... Myself
+# Interview with... My Twin
 
 Q: What makes you so evil?
-
 A: I'm just born that way, baby.
 
 Q: Why are you so LAME.
@@ -17,3 +16,5 @@ Q: No, really. What's wrong with you.
 A: Because NOW I'M EVIL HAHAHAHAHAHAHAHHA
 
 Q: Are you good now? Who's good? I'm lost.
+
+A: Everyone's a little good and a little evil stop making everything a binary.
