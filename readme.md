@@ -1,3 +1,7 @@
 # Interview with... Myself
 
-What makes you so evil?
+Q: What makes you so evil?
+
+A: I'm just born that way, baby.
+
+Q: Why are you so LAME.
