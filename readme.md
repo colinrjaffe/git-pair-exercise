@@ -15,3 +15,5 @@ A: **I answered that question already!! I was born that way. What's your excuse?
 Q: No, really. What's wrong with you.
 
 A: Because NOW I'M EVIL HAHAHAHAHAHAHAHHA
+
+Q: Are you good now? Who's good? I'm lost.
